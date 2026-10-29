@@ -37,4 +37,4 @@ We may update our Privacy Policy from time to time. Any changes will be posted o
 
 If you have any questions or suggestions regarding this Privacy Policy, please contact us at:
 
-* **Email:** <baoxiaoling@gmail.com>
+* **Email:** <baosoftware2026@gmail.com>
